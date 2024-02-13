@@ -2,7 +2,7 @@
 - 👀 I’m interested in Linux in the Public Health Srector
 - 🌱 I’m currently learning R-Script
 - 💞️ I’m looking to collaborate on Any Projects!
-- 📫 How to reach me via email
+- 📫 How to reach me via email: [underwoodabramksir@michigan.gov](mailto:underwoodabramksir@michigan.gov)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like gardens and eating!
 
